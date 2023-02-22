@@ -1,0 +1,1 @@
+# Hava-S-cakl-na-G-re-Etkinlik-nerme
